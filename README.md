@@ -9,7 +9,7 @@ Use of this program may violate laws and regulations in your jurisdiction. You a
 
 ***Telegram Channel - https://t.me/jumper1400z***
 
--------------------------------------------------------
+
 
 **Support the Project - https://www.donationalerts.com/r/prostorusskiy123**
 
