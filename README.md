@@ -1,4 +1,4 @@
-**official project - https://github.com/arsium/EagleMonitorRAT**
+**Official Project - https://github.com/arsium/EagleMonitorRAT**
 
 -------------------------------
 
