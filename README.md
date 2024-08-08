@@ -11,5 +11,6 @@ Use of this program may violate laws and regulations in your jurisdiction. You a
 
 -------------------------------------------------------
 
-***Поддержать Проект - https://www.donationalerts.com/r/prostorusskiy123**
+**Support the Project - https://www.donationalerts.com/r/prostorusskiy123**
+
 
